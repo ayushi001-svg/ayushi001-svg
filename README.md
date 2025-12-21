@@ -7,7 +7,6 @@
 - ⚡ **Fun fact:** I Love Tech and Tech Love Me
 
 
-[![ Instagram](https://img.shields.io/badge/Instagram-pink?logo=instagram&logoColor=white)](https://www.instagram.com/ayushiupadhyay63/)[![ Twitter](https://img.shields.io/badge/Twitter-lightblue?logo=twitter&logoColor=white)](https://x.com/Ay40152Ayushi)
 
 [![](https://visitcount.itsvg.in/api?id=alamimran613&icon=1&color=4)](https://visitcount.itsvg.in)
 
